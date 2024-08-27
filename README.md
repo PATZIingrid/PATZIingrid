@@ -1,10 +1,12 @@
 ## Boas vindas ao meu perfil 😎
 
 - estudante📚
+- estudando no [alura](https://www.alura.com.br) 
 
-**entre em contato📞**
+**entre em contato**📬
 
 00001121709837SP@al.educacao.sp.gov.br
+
 @eu__patzi
 
 
